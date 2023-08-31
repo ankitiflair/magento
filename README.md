@@ -1,3 +1,6 @@
+
+Acceptance of Job Offer as Magento Developer at NineHertz
+
 Dear Neetu Sharma,
 
 I hope this email finds you well. I am writing to formally accept the job offer for the position of Magento Developer at NineHertz.
